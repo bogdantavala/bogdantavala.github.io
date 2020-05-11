@@ -1,1 +1,0 @@
-# bogdantavala.github.io
